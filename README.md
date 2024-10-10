@@ -17,7 +17,7 @@
 
 - 🤝 I’m looking for help with [Vue.js Blog Integration](GitHub - Vue Blog)
 
-- 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/elna-lutta-1568a3265/](https://www.linkedin.com/in/elna-lutta-1568a3265/)
+- 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/purity-lutta-1568a3265/](https://www.linkedin.com/in/purity-lutta-1568a3265/)
 
 - 📝 I regularly write articles on [Medium - Tech Insights](Medium - Tech Insights)
 
@@ -25,7 +25,7 @@
 
 - 📫 How to reach me **lalittaruby@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/elna-lutta-1568a3265/](https://www.linkedin.com/in/elna-lutta-1568a3265/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/purity-lutta-1568a3265/](https://www.linkedin.com/in/purity-lutta-1568a3265/)
 
 - ⚡ Fun fact **I think I am funny. One day, I'll make a computer laugh!**
 
